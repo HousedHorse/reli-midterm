@@ -1,3 +1,150 @@
+# Introduction
+
+## Memento Mori
+
+- thinking about death
+
+## Thanatology
+
+- study of death
+
+## Iron Crutch Li
+
+- one of the eight immortals
+- left his body to talk to gods
+
+## Taphophobia
+
+- fear of being buried alive
+
+## Brain Death
+
+- complete loss of all brain function
+
+## Phenomenology
+
+- focus on direct experience of things rather than the validity of them
+
+## Epoche
+
+- suspension of judgement
+- goes hand in hand with phenomenology
+
+## Cosmology
+
+- religious view of the universe
+
+## Soteriology
+
+- study of salvation
+
+## Discourse Community
+
+- a group that has its own jargon for talking about things
+
+## Buddhist Parable of the Mustard Seed
+
+- find a family that has been unaffected by death and get a mustard seed
+- turns out, everyone has been affected by death
+
+## Wari Cannibalism
+
+- dead come back as pigs to nourish the living
+- eating the dead is a form of respect
+- they cry while they are doing it
+
+## Religious Ritual
+
+- rite of passage
+- performed
+- formalistic
+- traditionalistic
+
+## Rite of Passage
+
+- change in social status
+- separation
+- liminality
+  - between states
+- reintegration
+
+
+
+
+# Indigenous Religion
+
+## Psychic Unity of Humanity
+
+- we are all identical in terms of cognitive function
+
+## Numinous
+
+- feeling of spiritual presence
+
+## Tupilak
+
+- totem thrown into sea by inuit shaman
+- sends a vengeful spirit to kill someone
+
+## Shaman
+
+- religious professional
+- interacts with spirits
+
+## Near Death Experience
+
+- dying and coming back
+- or almost dying
+- conveying a near death experience can lend credence to cosmological views
+
+## Commensal Community
+
+- community that bonds by eating together
+- sharing food
+- can share food with the living AND the dead
+
+## Affect in Religion
+
+- a feeling invoked by something
+- in Japanese religion, only places with affect become shrines
+  - said to be inhabited by gods (kami)
+
+## Basilov's Indigenous Religion Traits
+
+- animism
+- connections in nature
+- no separation from surrounding world
+  - locative, not utopian
+- cosmos is accessible
+- social consciousness (religion helps form bonds with each other)
+
+## Souls and Spirits in Indigenous Religions
+
+- multiplicity
+- china
+  - hun
+  - po
+- tibet
+  - protective deities live inside people
+- inuit
+  - larynx
+  - left side of body
+  - in limbs, size of finger joints
+- mobility
+  - souls can move around
+- materiality
+  - specific shapes of souls
+  - souls are real, material
+  - can become drunk in Chinese religion
+  - experience real human emotions (vengeful spirits)
+
+## Melpa Understanding of Souls
+
+- brother won't sacrifice pig
+- sisters sees the dead meeting
+- they decide who will die in battle
+- want to kill the brother because he wouldn't sacrifice the pig
+
 # Ancient World
 
 ## Osiris
