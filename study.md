@@ -376,3 +376,13 @@
 - when angel blows the trumpet, everything dies but god
 
 ## Muslim Funerary Practices
+
+- shahada as last words
+- no excessive grief
+  - death is god's will
+- nobody should weep
+- wash the body by family member of same gender
+- bathe themselves
+  - do a wudu (ablution)
+- surround body in white cloth and prepare for burial
+- pray for supplication
