@@ -332,9 +332,11 @@
 ## Sitting Shiva
 
 - mourning period
-- shiva = 7 (seven days to purify)
+- shiva = 7 (from the seven days to purify)
+- sit on low stools
 - excluded from normal activities, like taking care of themselves
 - receive visitors who support them during this time
+  - food, kind words
 
 ## Early Hebrew Understanding of Death
 
