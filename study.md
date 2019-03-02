@@ -357,13 +357,22 @@
 ## Barzakh
 
 - duration from the time somebody is dead until the judgement day
+- in-between space
 
 ## The Traverse
 
+- gap you have to cross to get to heaven
+- if god judges you, you will fall to hell
+
 ## Islamic Views on Death
+
+- day of judgement
+- judge nafs on morality
 
 ## Muslim Final Judgement
 
 - focuses human morality
+- barzakh
+- when angel blows the trumpet, everything dies but god
 
 ## Muslim Funerary Practices
