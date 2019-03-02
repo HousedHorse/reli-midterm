@@ -224,22 +224,146 @@
 
 ## Creed
 
+- mainly belief
+- not so much ritual in protestantism
+- many sects due to differences in creed
+
+- old testament (jewish stuff) vs new testament
+
 ## Messiah
+
+- anointed one
+- Jesus coming back
+- all references to a messiah are to Jesus Christ
 
 ## Docetism
 
+- Helenistic Greek school of thought
+- the idea of Jesus being tortured and dying diminished
+- Jesus' appearance was an apparition, not a physical one
+
 ## Martyr
+
+- "witness"
+- died for the greater good
+- Jesus died to save us
 
 ## Imitatio Christi
 
+- Jesus assumed a human form
+- humans should try to imitate christ
+- live as christ did, follow his example
+- die for one's christian belief
+  - stephen died after criticizing the jewish council
+- martyrdom
+
 ## Purgatory
+
+- intermediate realm between heaven and hell
+- not as good as saints
+- not as evil as sinners
+- undergo purification, go to heaven
+- intercessory prayer
 
 ## Intercessory Prayer
 
+- living can pray for the deceased
+- has a beneficial effect for the dead
+
 ## Lamb of God
+
+- christ was lamb of god
+- sacrificial lamb
+- blood purifies the living
 
 ## Augustine's Compromise
 
+- what happens with the resurrection of the body and judgement
+- at death, soul separates from body
+  - intermediate state
+  - is judged here
+- at the end of time, everyone assumes resurrected spiritual bodies
+
 ## Stages of Resurrection
 
+- concreteness of the resurrected body
+
+- initial resurrection of Christ
+- arise of evil empires
+- final apocalyptic return of Christ
+- resurrection of saints/martyrs
+- all the dead will rise again
+- defeat of evil empires
+- final judgement
+- new jerusalem (locative and utopian)
+
 ## Four Theories of Atonement
+
+- how does Jesus' death save us from sins?
+
+1. ransom, price paid for release of humanity from doom
+   (lamb of god, blood purifies living)
+2. satisfaction, god needed justice,
+   jesus died as a subsitute
+3. moral example that all humans should follow
+4. theosis, entirety of christ's life atoned for sins,
+   when he became divine, he could die
+
+
+
+
+
+# Islamic Perspectives
+
+## Shahada
+
+- 5 times a day, first and last thing you hear in life
+- declaration of faith
+- not something that you are, something that you do
+- no other god than Allah
+- Muhammad is messenger of god
+
+## Qibla
+
+- direction of shrine in center of mecca
+- face towards it during prayer
+- current Qiblah is Kaaba in Mecca
+- body is buried facing Qibla
+
+## Hadith
+
+- follow the sunna of the prophet (follow the path of the prophet)
+- similar to imitatio christi
+
+## Allah
+
+- islamic god
+- oneness of god
+- 99 names
+
+## Ruh and Nafs
+
+- ruh (rufs) is the soul that gets captured when someone dies
+  - life breath
+- nafs is the soul that we are judged upon in judgement day
+- soul is from joining of body and spirit
+
+## Munkar and Nakir
+
+- two angels that come upon death
+- ask you questions
+- Munkar is bad, Nakir is good
+
+## Barzakh
+
+- duration from the time somebody is dead until the judgement day
+
+## The Traverse
+
+## Islamic Views on Death
+
+## Muslim Final Judgement
+
+- focuses human morality
+
+## Muslim Funerary Practices
